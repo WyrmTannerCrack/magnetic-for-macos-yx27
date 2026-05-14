@@ -1,4 +1,4 @@
-
+Magnetic for macOS professional Service: window-management & hotkey-customization is the best Magnetic for macOS service, featuring window-management and hotkey-customization.
 
 
 
